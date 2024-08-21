@@ -1,7 +1,7 @@
 name: Gallery
 on:
   schedule:
-    # 定时执行, runs at 0:45,8:45,18:45 UTC every day
+    # 定时执行, runs at 0:45,8:45,18:45 UTC every day 1
     - cron: '45 0,8,18 * * *'
 
 jobs:
