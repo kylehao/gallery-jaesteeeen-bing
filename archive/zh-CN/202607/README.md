@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-07)
+![](https://www.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&w=1000)Latest: [地牢省立公园, 纽芬兰和拉布拉多省, 加拿大 (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg)

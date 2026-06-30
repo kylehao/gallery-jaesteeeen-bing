@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-07)
+![](https://www.bing.com/th?id=OHR.JogFalls2026_EN-IN2533705121_UHD.jpg&w=1000)Latest: [Jog Falls on the Sharavathi River, Shivamogga district, Karnataka (© Amith Nag Photography/Moment/Getty Images)](https://www.bing.com/th?id=OHR.JogFalls2026_EN-IN2533705121_UHD.jpg)
