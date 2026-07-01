@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-07)
+![](https://www.bing.com/th?id=OHR.KaysersbergVillage_EN-GB9678795742_UHD.jpg&w=1000)Latest: [Kaysersberg, Alsace, France (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_EN-GB9678795742_UHD.jpg)

@@ -1,2 +1,6 @@
 ## Bing Wallpaper (2026-07)
-![](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg&w=1000)Latest: [Girafas ao pôr do sol na Reserva Nacional Masai Mara, Quênia (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DungeonPark_PT-BR3960378944_UHD.jpg&w=1000)Latest: [Dungeon Provincial Park, Terra Nova e Labrador, Canadá (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_PT-BR3960378944_UHD.jpg)
+
+|      |      |      |
+| :----: | :----: | :----: |
+|![](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-01 [download 4k](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg)|
