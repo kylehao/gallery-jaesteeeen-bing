@@ -1,2 +1,6 @@
 ## Bing Wallpaper (2026-07)
-![](https://www.bing.com/th?id=OHR.DungeonPark_ES-ES4904785525_UHD.jpg&w=1000)Latest: [Dungeon Provincial Park, Terranova y Labrador, Canadá (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_ES-ES4904785525_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TempleEsna_ES-ES5295149663_UHD.jpg&w=1000)Latest: [Techo del Templo de Jnum en Esna, Egipto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_ES-ES5295149663_UHD.jpg)
+
+|      |      |      |
+| :----: | :----: | :----: |
+|![](https://www.bing.com/th?id=OHR.DungeonPark_ES-ES4904785525_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-01 [download 4k](https://www.bing.com/th?id=OHR.DungeonPark_ES-ES4904785525_UHD.jpg)|
