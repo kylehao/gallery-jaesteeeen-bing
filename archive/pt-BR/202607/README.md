@@ -1,6 +1,7 @@
 ## Bing Wallpaper (2026-07)
-![](https://www.bing.com/th?id=OHR.FirefliesJapan_PT-BR7106842411_UHD.jpg&w=1000)Latest: [Vaga-lumes sobre um riacho, província de Okayama, Japão (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_PT-BR7106842411_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KaysersbergVillage_PT-BR5158585338_UHD.jpg&w=1000)Latest: [Kaysersberg, Alsácia, França (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_PT-BR5158585338_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.TempleEsna_PT-BR4377934596_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-03 [download 4k](https://www.bing.com/th?id=OHR.TempleEsna_PT-BR4377934596_UHD.jpg)|![](https://www.bing.com/th?id=OHR.DungeonPark_PT-BR3960378944_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-02 [download 4k](https://www.bing.com/th?id=OHR.DungeonPark_PT-BR3960378944_UHD.jpg)|![](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-01 [download 4k](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.FirefliesJapan_PT-BR7106842411_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-04 [download 4k](https://www.bing.com/th?id=OHR.FirefliesJapan_PT-BR7106842411_UHD.jpg)|![](https://www.bing.com/th?id=OHR.TempleEsna_PT-BR4377934596_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-03 [download 4k](https://www.bing.com/th?id=OHR.TempleEsna_PT-BR4377934596_UHD.jpg)|![](https://www.bing.com/th?id=OHR.DungeonPark_PT-BR3960378944_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-02 [download 4k](https://www.bing.com/th?id=OHR.DungeonPark_PT-BR3960378944_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-01 [download 4k](https://www.bing.com/th?id=OHR.MasaiGiraffe_PT-BR8199198867_UHD.jpg)|
