@@ -1,6 +1,7 @@
 ## Bing Wallpaper (2026-07)
-![](https://www.bing.com/th?id=OHR.KaysersbergVillage_DE-DE1031882295_UHD.jpg&w=1000)Latest: [Kaysersberg, Elsass, Frankreich (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_DE-DE1031882295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LavenderRows_DE-DE5950929230_UHD.jpg&w=1000)Latest: [Lavendelfelder, Plateau de Valensole, Provence, Frankreich (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_DE-DE5950929230_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.FirefliesJapan_DE-DE4398668270_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-03 [download 4k](https://www.bing.com/th?id=OHR.FirefliesJapan_DE-DE4398668270_UHD.jpg)|![](https://www.bing.com/th?id=OHR.TempleEsna_DE-DE2277338406_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-02 [download 4k](https://www.bing.com/th?id=OHR.TempleEsna_DE-DE2277338406_UHD.jpg)|![](https://www.bing.com/th?id=OHR.NeckarVineyards_DE-DE0300601892_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-01 [download 4k](https://www.bing.com/th?id=OHR.NeckarVineyards_DE-DE0300601892_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.KaysersbergVillage_DE-DE1031882295_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-04 [download 4k](https://www.bing.com/th?id=OHR.KaysersbergVillage_DE-DE1031882295_UHD.jpg)|![](https://www.bing.com/th?id=OHR.FirefliesJapan_DE-DE4398668270_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-03 [download 4k](https://www.bing.com/th?id=OHR.FirefliesJapan_DE-DE4398668270_UHD.jpg)|![](https://www.bing.com/th?id=OHR.TempleEsna_DE-DE2277338406_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-02 [download 4k](https://www.bing.com/th?id=OHR.TempleEsna_DE-DE2277338406_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.NeckarVineyards_DE-DE0300601892_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-07-01 [download 4k](https://www.bing.com/th?id=OHR.NeckarVineyards_DE-DE0300601892_UHD.jpg)|
