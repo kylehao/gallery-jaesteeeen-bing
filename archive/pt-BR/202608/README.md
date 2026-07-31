@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-08)
+![](https://www.bing.com/th?id=OHR.VirginiaTrail_PT-BR9310516852_UHD.jpg&w=1000)Latest: [Vista aérea da Virginia Creeper Trail, Damascus, Virgínia, Estados Unidos (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_PT-BR9310516852_UHD.jpg)
