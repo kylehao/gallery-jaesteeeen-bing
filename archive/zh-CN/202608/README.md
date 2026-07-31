@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-08)
+![](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&w=1000)Latest: [大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg)
