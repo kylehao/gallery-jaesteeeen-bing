@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-08)
+![](https://www.bing.com/th?id=OHR.HawaiiLava_IT-IT9255141439_UHD.jpg&w=1000)Latest: [Una serie di colate laviche si riversa nell'oceano, Big Island, Hawaii, USA (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_IT-IT9255141439_UHD.jpg)
