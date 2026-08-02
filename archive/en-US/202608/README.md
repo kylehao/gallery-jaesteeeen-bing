@@ -1,6 +1,6 @@
 ## Bing Wallpaper (2026-08)
-![](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg&w=1000)Latest: [A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg&w=1000)Latest: [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-02 [download 4k](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg)|![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)|
