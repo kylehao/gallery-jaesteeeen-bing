@@ -1,2 +1,6 @@
 ## Bing Wallpaper (2026-08)
-![](https://www.bing.com/th?id=OHR.SantaCatalina_ES-ES2186596110_UHD.jpg&w=1000)Latest: [Arco de Santa Catalina, Antigua Guatemala, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_ES-ES2186596110_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelsinkiBlue_ES-ES3341783633_UHD.jpg&w=1000)Latest: [La costa de Helsinki durante la hora azul, Uusimaa, Finlandia (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_ES-ES3341783633_UHD.jpg)
+
+|      |      |      |
+| :----: | :----: | :----: |
+|![](https://www.bing.com/th?id=OHR.SantaCatalina_ES-ES2186596110_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.SantaCatalina_ES-ES2186596110_UHD.jpg)|
