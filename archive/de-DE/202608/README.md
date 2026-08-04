@@ -1,6 +1,6 @@
 ## Bing Wallpaper (2026-08)
-![](https://www.bing.com/th?id=OHR.BoatsMalta_DE-DE5376700732_UHD.jpg&w=1000)Latest: [Bunte Boote im Hafen von Marsaxlokk, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_DE-DE5376700732_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdorableOwlet_DE-DE5484057022_UHD.jpg&w=1000)Latest: [Florida-Kanincheneule, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_DE-DE5484057022_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-02 [download 4k](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg)|![](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.BoatsMalta_DE-DE5376700732_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-03 [download 4k](https://www.bing.com/th?id=OHR.BoatsMalta_DE-DE5376700732_UHD.jpg)|![](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-02 [download 4k](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg)|![](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg)|
