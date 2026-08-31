@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.SurathkalBeach2026_EN-IN6160079394_UHD.jpg&w=1000)Latest: [The stranded wreck at Surathkal Beach, Karnataka (© Amith Nag Photography/Moment/Getty Images)](https://www.bing.com/th?id=OHR.SurathkalBeach2026_EN-IN6160079394_UHD.jpg)

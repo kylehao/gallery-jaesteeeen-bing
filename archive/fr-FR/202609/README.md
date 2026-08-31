@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_FR-FR3845055413_UHD.jpg&w=1000)Latest: [Gymnopus androsaceus, Biélorussie (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_FR-FR3845055413_UHD.jpg)

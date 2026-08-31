@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.CapodannoBizantino_IT-IT2305233649_UHD.jpg&w=1000)Latest: [Vista aerea del Fiordo di Furore, Costiera Amalfitana, Italia (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.CapodannoBizantino_IT-IT2305233649_UHD.jpg)

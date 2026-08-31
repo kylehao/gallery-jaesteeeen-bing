@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_DE-DE7910104416_UHD.jpg&w=1000)Latest: [Rosshaar-Schwindling, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_DE-DE7910104416_UHD.jpg)

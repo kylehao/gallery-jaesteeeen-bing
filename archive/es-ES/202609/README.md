@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&w=1000)Latest: [Hongos paracaídas, Bielorrusia (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg)
