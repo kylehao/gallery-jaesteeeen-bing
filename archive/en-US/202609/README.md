@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg&w=1000)Latest: [Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg)

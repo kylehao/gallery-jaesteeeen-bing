@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&w=1000)Latest: [马鬃小皮伞，白俄罗斯 (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)

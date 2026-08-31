@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-09)
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_JA-JP2550807968_UHD.jpg&w=1000)Latest: [オチバタケ, ベラルーシ (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_JA-JP2550807968_UHD.jpg)
