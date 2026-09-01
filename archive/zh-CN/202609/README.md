@@ -1,2 +1,6 @@
 ## Bing Wallpaper (2026-09)
-![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&w=1000)Latest: [马鬃小皮伞，白俄罗斯 (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&w=1000)Latest: [传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)
+
+|      |      |      |
+| :----: | :----: | :----: |
+|![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-01 [download 4k](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)|
