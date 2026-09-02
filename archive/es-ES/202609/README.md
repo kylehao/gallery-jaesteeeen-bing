@@ -1,2 +1,6 @@
 ## Bing Wallpaper (2026-09)
-![](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&w=1000)Latest: [Hongos paracaídas, Bielorrusia (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg&w=1000)Latest: [Cabañas de playa en Southwold, condado de Suffolk, Inglaterra (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg)
+
+|      |      |      |
+| :----: | :----: | :----: |
+|![](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-01 [download 4k](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg)|
