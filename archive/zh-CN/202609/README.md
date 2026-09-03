@@ -1,6 +1,6 @@
 ## Bing Wallpaper (2026-09)
-![](https://www.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&w=1000)Latest: [郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国 (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&w=1000)Latest: [韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国 (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-02 [download 4k](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)|![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-01 [download 4k](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-03 [download 4k](https://www.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg)|![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-02 [download 4k](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)|![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-01 [download 4k](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)|
