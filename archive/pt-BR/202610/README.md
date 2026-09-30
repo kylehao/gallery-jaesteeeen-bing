@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.BeardReedling_PT-BR1145161880_UHD.jpg&w=1000)Latest: [Chapim-de-bigodes em Norfolk, Inglaterra (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_PT-BR1145161880_UHD.jpg)

@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.BeardReedling_EN-CA1270469815_UHD.jpg&w=1000)Latest: [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-CA1270469815_UHD.jpg)
