@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.OlmstedPoint_JA-JP0098463265_UHD.jpg&w=1000)Latest: [オルムステッド・ポイント, 米国 カリフォルニア州 (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_JA-JP0098463265_UHD.jpg)
