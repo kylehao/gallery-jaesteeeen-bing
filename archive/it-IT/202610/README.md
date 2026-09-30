@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg&w=1000)Latest: [Tramonto da Olmsted Point, Parco Nazionale di Yosemite, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg)

@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.NathmaljiHaveli2026_EN-IN9027003376_UHD.jpg&w=1000)Latest: [View into the sky from Nathmal Ki Haveli courtyard, Jaisalmer, Rajasthan (© Emad Aljumah/Moment/Getty Images)](https://www.bing.com/th?id=OHR.NathmaljiHaveli2026_EN-IN9027003376_UHD.jpg)

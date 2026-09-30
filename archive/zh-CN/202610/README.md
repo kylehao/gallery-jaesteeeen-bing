@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&w=1000)Latest: [奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg)

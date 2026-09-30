@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-10)
+![](https://www.bing.com/th?id=OHR.BeardReedling_DE-DE4310310403_UHD.jpg&w=1000)Latest: [Bartmeisenmännchen, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_DE-DE4310310403_UHD.jpg)
