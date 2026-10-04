@@ -1,6 +1,6 @@
 ## Bing Wallpaper (2026-10)
-![](https://www.bing.com/th?id=OHR.GrizzlySwim_IT-IT0100605871_UHD.jpg&w=1000)Latest: [Orso bruno a Silver Salmon Creek, Parco nazionale e riserva di Lake Clark, Alaska, Stati Uniti (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_IT-IT0100605871_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArtemisRocket_IT-IT8266299733_UHD.jpg&w=1000)Latest: [Il razzo lunare Artemis I al Launch Complex 39B, Kennedy Space Center, Florida, Stati Uniti, 15 giugno 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_IT-IT8266299733_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.PerugiaAqueduct_IT-IT7918245077_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-10-02 [download 4k](https://www.bing.com/th?id=OHR.PerugiaAqueduct_IT-IT7918245077_UHD.jpg)|![](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-10-01 [download 4k](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.GrizzlySwim_IT-IT0100605871_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-10-03 [download 4k](https://www.bing.com/th?id=OHR.GrizzlySwim_IT-IT0100605871_UHD.jpg)|![](https://www.bing.com/th?id=OHR.PerugiaAqueduct_IT-IT7918245077_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-10-02 [download 4k](https://www.bing.com/th?id=OHR.PerugiaAqueduct_IT-IT7918245077_UHD.jpg)|![](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-10-01 [download 4k](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg)|
