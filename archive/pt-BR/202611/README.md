@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-11)
+![](https://www.bing.com/th?id=OHR.FrankfurtHalloween_PT-BR9368321413_UHD.jpg&w=1000)Latest: [Catedral de São Bartolomeu, em Frankfurt, Alemanha (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_PT-BR9368321413_UHD.jpg)
