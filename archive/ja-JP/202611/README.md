@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-11)
+![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_JA-JP7556408951_UHD.jpg&w=1000)Latest: [シュヴァルツヴァルト、バーデン＝ヴュルテンベルク州、ドイツ (© Britus/Getty Images)](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_JA-JP7556408951_UHD.jpg)

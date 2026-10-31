@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-11)
+![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_EN-IN9123894203_UHD.jpg&w=1000)Latest: [Black Forest, Baden-Württemberg, Germany (© Britus/Getty Images)](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_EN-IN9123894203_UHD.jpg)
