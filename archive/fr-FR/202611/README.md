@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-11)
+![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_FR-FR8510928698_UHD.jpg&w=1000)Latest: [Forêt-Noire, Bade-Wurtemberg, Allemagne  (© Britus/Getty Images)](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_FR-FR8510928698_UHD.jpg)

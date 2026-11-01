@@ -1,0 +1,2 @@
+## Bing Wallpaper (2026-11)
+![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_IT-IT2276159599_UHD.jpg&w=1000)Latest: [Foresta Nera, Baden-Württemberg, Germania (© Britus/Getty Images)](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_IT-IT2276159599_UHD.jpg)
