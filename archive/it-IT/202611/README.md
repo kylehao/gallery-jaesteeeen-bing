@@ -1,6 +1,6 @@
 ## Bing Wallpaper (2026-11)
-![](https://www.bing.com/th?id=OHR.HudsonBear_IT-IT6232079426_UHD.jpg&w=1000)Latest: [Un orso polare con i suoi cuccioli, baia di Hudson, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_IT-IT6232079426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineBraies_IT-IT4890299611_UHD.jpg&w=1000)Latest: [Lago di Braies, Parco Naturale Fanes‑Sennes‑Braies, Dolomiti (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_IT-IT4890299611_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_IT-IT2276159599_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-11-01 [download 4k](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_IT-IT2276159599_UHD.jpg)|
+|![](https://www.bing.com/th?id=OHR.HudsonBear_IT-IT6232079426_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-11-02 [download 4k](https://www.bing.com/th?id=OHR.HudsonBear_IT-IT6232079426_UHD.jpg)|![](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_IT-IT2276159599_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-11-01 [download 4k](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_IT-IT2276159599_UHD.jpg)|
